@@ -6,4 +6,4 @@ With features like **daily journaling, self-care tracking, mood insights, affirm
 
 Whether it's through **motivational quotes, guided self-care plans, or mood tracking**, HerQ is a companion for personal growth, designed to help women feel **empowered, confident, and in control** of their journey.
 
-***Because every woman deserves to shine—HerQ is the key to unlocking her best self.***💜✨
+**Because every woman deserves to shine—HerQ is the key to unlocking her best self.**💜✨
